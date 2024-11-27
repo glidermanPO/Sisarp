@@ -14,3 +14,4 @@ gjkuirgjk
 takto si mi to pouzivame
 
 # Licencie
+ jkhjkh :joy:
